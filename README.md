@@ -1,4 +1,4 @@
-### Hi there 🖖
+### Hello! Welcome to my Page 🖖
 
 
 - 🔭 I’m currently working on Shopify Projects
